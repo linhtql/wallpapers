@@ -1,2 +1,1 @@
-# wallpapers
-<!-- wallpaper vip pro -->
+# wallpaper vip pro
